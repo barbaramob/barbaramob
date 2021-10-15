@@ -1,4 +1,4 @@
-### Olá! Eu sou Bárbara Maria ✌️
+### Olá! Eu sou Bárbara Maria ✌️🦦
 
 [![linkeding](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/b%C3%A1rbara-maria-6b3553196/)
 [![instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/oxent.babi/)
